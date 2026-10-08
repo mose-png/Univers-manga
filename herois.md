@@ -2,7 +2,7 @@
 
 ## 1. Goku
 - Anime: Dragon Ball.
-- Poder: Transformacions Super Saiyan i Ultra Instinct.
+- Poder: Super Saiyan Blue, Ultra Instinct, Kamehameha i teletransportació.
 - Descripció: Un guerrer Saiyan que protegeix
   la Terra i busca superar els seus límits.
 
