@@ -2,7 +2,7 @@
 
 ## 1. Madara Uchiha
 - Anime: Naruto.
-- Poder: Sharingan, Rinnegan i Susanoo.
+- Poder: Sharingan, Rinnegan, Susanoo Perfecte i control del poder del Deu Cues.
 - Objectiu: Crear un món controlat per una
   il·lusió eterna mitjançant el Tsukuyomi Infinit.
 
