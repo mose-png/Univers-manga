@@ -16,3 +16,10 @@
 - Ciutat principal: Ciutat de l'Oest.
 - Conflicte: Freezer vol conquerir la Terra
   i controlar l'univers.
+
+  ## Connexió entre universos
+- Els portals permeten viatjar entre
+  el Món Ninja i el Món dels Guerrers.
+- Personatges relacionats: Naruto, Goku i Saitama.
+- Perill principal: Els vilans poden
+  utilitzar els portals per envair altres mons.

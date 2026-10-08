@@ -29,3 +29,9 @@
 - Poder: Limitless, Six Eyes i expansió de domini.
 - Descripció: Un poderós hechicero que
   lluita contra les malediccions.
+
+  ## 6. Saitama
+- Anime: One Punch Man.
+- Poder: Força i velocitat extraordinàries.
+- Descripció: Un heroi capaç de derrotar
+  enemics extremadament poderosos amb facilitat.
