@@ -15,8 +15,19 @@ ha aconseguit un poder extraordinari.
 Durant la batalla, Goku apareix a través
 del portal i descobreix el conflicte.
 
-Naruto i Goku decideixen unir forces
-per derrotar Madara.
+Naruto i Goku decideixen unir forces,
+però Madara activa el seu Susanoo Perfecte.
 
-Finalment, aconsegueixen obligar Madara
-a retirar-se, però el portal continua obert.
+Quan sembla que els herois estan a punt
+de perdre, Luffy apareix a través del portal.
+
+Utilitzant el Gear 5, Luffy aconsegueix
+distreure Madara mentre Naruto i Goku
+preparen un atac conjunt.
+
+Els tres herois aconsegueixen obligar
+Madara a retirar-se.
+
+Malgrat la victòria, descobreixen que
+els portals continuen connectant universos
+i que altres vilans podrien arribar.
